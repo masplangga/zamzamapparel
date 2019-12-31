@@ -1,0 +1,2 @@
+# zamzamapparel
+privacy policy zamzamapparel
